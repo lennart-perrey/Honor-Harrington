@@ -1,2 +1,2 @@
-# Honor-Harrington
+# Honor Harrington
 Honor Harrington
